@@ -1,0 +1,2 @@
+# socius
+mencoba tak mengapa
